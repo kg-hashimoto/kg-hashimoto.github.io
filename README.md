@@ -1,0 +1,1 @@
+# kg-hashimoto.github.io
